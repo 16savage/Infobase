@@ -7,3 +7,5 @@ https://docs.google.com/document/d/17eMA1cGqmUlKD5ydcczupBSMvRejUuVUAVsOIG-4Hlc/
 
 Classwork -
 https://docs.google.com/document/d/1aRrRW3EJwDBpWKq3cQ7cpmJggtS1lPiSHCORL6koou8/edit?usp=sharing
+
+Practice - https://drive.google.com/drive/folders/10q9gXZ6LP7co8-w3RzJoubdRPud1eYNc
