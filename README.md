@@ -6,6 +6,6 @@ Home Red Os screenshoots -
 https://docs.google.com/document/d/17eMA1cGqmUlKD5ydcczupBSMvRejUuVUAVsOIG-4Hlc/edit?usp=drivesdk
 
 Classwork -
-https://docs.google.com/document/d/1aRrRW3EJwDBpWKq3cQ7cpmJggtS1lPiSHCORL6koou8/edit?usp=sharing
+https://docs.google.com/document/d/1L2-jnj1TxwoLFQyjJ4oZjj-Gl8dya5VUIIBeXJjxiIc/edit?usp=sharing
 
 Practice - https://drive.google.com/drive/folders/10q9gXZ6LP7co8-w3RzJoubdRPud1eYNc
